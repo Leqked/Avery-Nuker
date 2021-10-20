@@ -1,2 +1,2 @@
 # Avery-Nuker
-avery nuker lol | creds to skeet
+Fastest discord nuker | creds to skeet
