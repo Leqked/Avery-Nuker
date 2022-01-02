@@ -1,2 +1,2 @@
 # Avery Discord Nuker
-Disord Nuker | Credits: skeet#1500, Abzino#0024
+Disord Nuker | Credits: skeet#1500
